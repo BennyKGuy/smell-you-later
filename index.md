@@ -1,3 +1,11 @@
+"ABlelegle" By Benny
+=============================
+
+![](Comix/Ben/1-ABlelegle/1.png)
+![](Comix/Ben/1-ABlelegle/2.png)
+![](Comix/Ben/1-ABlelegle/3.png)
+
+
 "Book with no Title" By Benny
 =============================
 
