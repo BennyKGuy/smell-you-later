@@ -5,6 +5,18 @@
 ![](Comix/Ben/1-ABlelegle/2.png)
 ![](Comix/Ben/1-ABlelegle/3.png)
 
+**"Man Dog" By Sam**
+======================
+![](Comix/Sam/Man%20Dog/1.JPG)
+![](Comix/Sam/Man%20Dog/2.JPG)
+![](Comix/Sam/Man%20Dog/3.JPG)
+![](Comix/Sam/Man%20Dog/4.JPG)
+
+**"Cars-N-Stuff" By Sam**
+![](Comix/Sam/Cars-N-Stuff/1.JPG)
+![](Comix/Sam/Cars-N-Stuff/2.JPG)
+![](Comix/Sam/Cars-N-Stuff/3.JPG)
+![](Comix/Sam/Cars-N-Stuff/4.JPG)
 
 "Book with no Title" By Benny
 =============================
